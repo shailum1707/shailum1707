@@ -5,6 +5,7 @@ I have a huge intreset in Cyber Security as well Web development and Graphic des
 I love to join different community and compition that involve creating for the society.
 
 Skills :
+
 Designing | Problem solving 
 
 
@@ -16,6 +17,9 @@ Tools:
 
 
 I'm currently working on my website containing All my information.
+
 I'm currently learning Cyber security.
+
 How to reach me : shailu_m17 (Instagram)
+
 Pronouns : He/Him
