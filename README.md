@@ -6,7 +6,9 @@ I love to join different community and compition that involve creating for the s
 Skills :
 Designing | Problem solving 
 Tools:
-![Uploading pngwing.com.png…]() | ![1656733637logo-canva-png](https://github.com/shailum1707/shailum1707/assets/145243506/355cc026-e08e-428c-b150-ac564209594b)
+ <img width="200" alt="pngwing com" src="https://github.com/shailum1707/shailum1707/assets/145243506/8f589680-1b86-4288-9a5b-5d0a58ba8fe1">
+| ![1656733637logo-canva-png](https://github.com/shailum1707/shailum1707/assets/145243506/d267d4aa-8d71-4009-b990-23a89c62da06)
+
 I'm currently working on my website containing All my information.
 I'm currently learning Cyber security.
 How to reach me : shailu_m17 (Instagram)
